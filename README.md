@@ -1,1 +1,1 @@
-Lmao
+A 30 minutes project because im bored
